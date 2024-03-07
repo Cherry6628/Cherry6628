@@ -1,0 +1,6 @@
+- ⚓ @Cherry6628
+- 👋 Hi, I’m Cherry
+- 👨🏻‍💻 Interested in Coding
+- 🐍 Currently learning Python
+- ⚕️ Not always online
+- 📖 Busy in Learning New Things
